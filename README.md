@@ -1,4 +1,4 @@
-
+https://youtu.be/NaFmQH3rIAM?si=ABTkp8X3PuVMDYwE
 ##### 0x802b917a2dd6a51cf4d6483fbc6993fc0da5fbc4
 ##### https://metamask.io/
 ##### https://github.com/Lolliedieb/lolMiner-releases/releases
